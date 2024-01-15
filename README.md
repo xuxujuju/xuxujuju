@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning to drive
 - 💞️ I’m looking to collaborate on making me richer
 - 📫 How to reach me: don't
-- 😄 Pronouns: bag/ette
+- 😄 Pronouns: bagu/ette
 - ⚡ Fun fact: I'm 2.20m
 
 <!---
